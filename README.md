@@ -1,2 +1,2 @@
-# Afatyu.github.io
+Afatyu.github.io
 Buat Domain :)
